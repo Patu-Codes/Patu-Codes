@@ -29,7 +29,7 @@
 ![Unity](https://img.shields.io/badge/-Unity-000000?logo=unity&logoColor=white)
 
 📫 *Connect with me*:
-- [Instagram](https://www.instagram.com/neolearn.store)
+- [Instagram](https://www.instagram.com/prathamesh_29k_)
 - [Email](prathamesh0045k@gmail.com)
 
 ⭐ Thanks for visiting my profile! Let’s build something amazing together!
